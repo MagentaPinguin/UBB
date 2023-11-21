@@ -1,2 +1,2 @@
 # UBB
-A collection of tears of joy, but joy is a bit silent.
+A collection filled with tears of joy, but the joy is a bit silent.
